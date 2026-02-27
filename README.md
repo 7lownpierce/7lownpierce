@@ -11,5 +11,5 @@ let's be friendly! <br>
 <br>
 <br>
 7 clowns: hi <br>
-also me: [@clowneerie](github.com/clowneerie) [@clownpierces](github.com/clownpierces) <br>
+also me: [@clowneerie](https://github.com/clowneerie) [@clownpierces](https://github.com/clownpierces) <br>
 you'd think one clownpierce username was enough... but... nope!
