@@ -1,1 +1,3 @@
-my one trait is that i am incredibly sane
+hello 9/10 chances that i am busy. sorry! <br>
+but i pinky promise the 7 clowns behind 7lownpierce want to be friendly! <br>
+let's be friendly!
