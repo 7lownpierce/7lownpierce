@@ -10,4 +10,6 @@ let's be friendly! <br>
 <br>
 <br>
 <br>
-7 clowns: hi
+7 clowns: hi <br>
+also me: [@clowneerie](github.com/clowneerie) [@clownpierces](github.com/clownpierces) <br>
+you'd think one clownpierce username was enough... but... nope!
