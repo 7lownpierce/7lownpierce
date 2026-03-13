@@ -1,15 +1,4 @@
-hello 9/10 chances that i am busy. sorry! <br>
-but i pinky promise the 7 clowns behind 7lownpierce want to be friendly! <br>
-let's be friendly! <br>
 <br>
+9/10 chance the seven clowns are busy <br>
+10/10 chance the seven clowns are still friendly regardless <br>
 <br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-7 clowns: hi <br>
-also me: [@clowneerie](https://github.com/clowneerie) [@clownpierces](https://github.com/clownpierces) <br>
-you'd think one clownpierce username was enough... but... nope!
